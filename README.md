@@ -4,6 +4,6 @@
 
 Olá, me chamo Gustavo, sou estudante e estou vendo se progrmação é realmente minha área.
 
-## Objetivos
+## Objetivas
 
-Ser um pessoa bem sucedida.
+na minha cabeça eu sou o meor
